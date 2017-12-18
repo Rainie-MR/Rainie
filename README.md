@@ -78,6 +78,8 @@
 
 遥远的内蒙古，遥远的大草原，你们心中的敕勒川，阴山下。
 
+![表情包](http://b342.photo.store.qq.com/psb?/V11Ohrbo0hAUIH/0Xpb1s5WMTsB43oKtk6qZ*A1PCZRZIwmoQ948NDK9es!/b/dFYBAAAAAAAA&bo=tQG7AbUBuwEFCSo!&rf=viewer_4)
+
 提到家乡，总是有几个世纪问题，需要解答：
 
 _问题1：你们是不是骑马上学？_
@@ -131,6 +133,7 @@ _问题4、5、6......：你们是不是缺水一年也洗不几次澡啊？你�
 
 但，没有后悔过来这里。
 
+![表情包](http://b359.photo.store.qq.com/psb?/V11Ohrbo0hAUIH/zv8JyARYNu4F8c9Lf*JCAGpH8Hrov*lpus9zFbt07XE!/b/dGcBAAAAAAAA&bo=vAKEArwChAIFCSo!&rf=viewer_4)
 ---
 
 ### **为什么参加半撇私塾？**
@@ -161,7 +164,7 @@ _问题4、5、6......：你们是不是缺水一年也洗不几次澡啊？你�
 
 很感谢自己迈出的这一步，终于生活向着自己想要的方向在发展。
 
-
+![表情包](http://b178.photo.store.qq.com/psb?/V11Ohrbo0hAUIH/IadE88UAwDc6JqpuEvffLaHyhj.gAQ7DDotpFmMpbp8!/b/dLIAAAAAAAAA&bo=WALCAVgCwgEFCSo!&rf=viewer_4)
 
 - 2.半撇私塾
 
@@ -215,7 +218,9 @@ Just kidding，我堂堂大金牛怎么可能就只看重钱呢？
 
 - 3.2019年成为简书签约作者。
 
-- 4.最最重要，18年年初找到一个新媒体运营的工作，当然，Money不能少，哈哈哈哈，毕竟不能继续让贫穷限制了我的想象。
+- 4.最最重要，18年年初找到一个新媒体运营的工作，当然，Money不能少，哈哈哈哈，毕竟不能继续让贫穷限制了我的想象，也要挣钱买衣服啊，不能让自己这匹来自草原的狼冻死在深圳的冬天啊！
+
+![表情包](http://b200.photo.store.qq.com/psb?/V11Ohrbo0hAUIH/Ku9lO0Lkn7lqltNCmm2f7x7H0.hvd6ueHn1qufkcr.s!/b/dMgAAAAAAAAA&bo=GAHxAAAAAAAFCcI!&rf=viewer_4)
 
 ## （伍）利器推荐
 

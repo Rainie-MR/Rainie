@@ -15,7 +15,7 @@
 
 **公众号：** 沐尧(欢迎关注，里面只有一篇16年写的黄山攻略，没错，懒癌患者犯病一年没有写过文章了……）
 
-![微信](https://mp.weixin.qq.com/misc/getqrcode?fakeid=3222501166&token=1201170482&action=download&style=1&pixsize=224，https://mp.weixin.qq.com/cgi-bin/settingpage?t=setting/index&action=index&token=1201170482&lang=zh_CN)
+![微信](http://m.qpic.cn/psb?/V11Ohrbo3ERcDo/EWm*PeGyLysftd*0S*67Zs.skDx6aBhztVhYnXqb.is!/b/dFsBAAAAAAAA&bo=AgECAQAAAAARBzA!&rf=viewer_4)
 
 **简书：** [Rainie_沐尧](http://www.jianshu.com/users/a09827de5809/timeline) 目前还只是个空账号，相信自己会发奋涂墙👍 。
 

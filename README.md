@@ -174,9 +174,11 @@ _问题4、5、6......：你们是不是缺水一年也洗不几次澡啊？你�
 
 对“半撇私塾”，从了解，到怀疑，再到现在的无比相信，我始终相信是课程本身的魅力在影响着我，我也始终相信他可以带我走进我向往的生活。
 
-##(叁）技能介绍
+## (叁）技能介绍
 
 哈哈哈哈，我可是一个极美（chou)貌(pang)与才（dou)华(bi)于一身的女子。
+
+![表情包](http://m.qpic.cn/psb?/V11Ohrbo3ERcDo/Hi5N1.xuMFe73Gee3XRlmnbJi4k3uqzEQ5uAWjKpWp4!/b/dFsBAAAAAAAA&bo=uAG4AQAAAAARBzA!&rf=viewer_4)
 
 - 体育：
 
